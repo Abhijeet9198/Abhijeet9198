@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on Video Editing Peojects
 - 📫 How to reach me https://wa.me/8400445713
 - 😄 Pronouns: He/Him
-- 
 
 <!---
 Abhijeet9198/Abhijeet9198 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
